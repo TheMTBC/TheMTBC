@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @TheMTBC
+- 👀 I’m interested in coding
